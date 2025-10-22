@@ -1,1 +1,1 @@
-
+Dedicated scholar in the interdisciplinary domains of Cybersecurity, Software Engineering, and Interactive Game Programming, possessing a profound comprehension of low-level computational architectures and system internals. An ardent advocate of the Linux ecosystem, championing open-source innovation, digital sovereignty, and the pursuit of technical excellence through perpetual experimentation.
